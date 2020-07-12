@@ -1,4 +1,4 @@
-#### 🤷‍♀️ I am still in search for a really witty introduction for myself.
+#### Heylo!
 #### I love Tech, Maths, Art and the Arctic Monkeys!
 #### Community member at GDG Kolkata and WTM Kolkata.
 #### Google Women Techmakers Scholar 2020.
