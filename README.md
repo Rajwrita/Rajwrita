@@ -1,4 +1,4 @@
-#### 👋Heylo!
+#### 👋Hey!
 - ⚡Data Analyst Intern at [Headout](https://www.headout.com/)
 - ⚡Software developer at [Regulatory Genome Project](https://www.cam.ac.uk/research/news/cambridge-launches-regulatory-genome-project)
 - ⚡Ex-Lead at Google Developer Students Club NSEC, Google WTM Scholar 2020, Research Scholar at Jadavpur University, Kolkata
